@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Emiya15
+- 👀 I’m interested in programming (anything as far as I learn something and I enjoy the creation)
+- 🌱 I’m currently learning ( C++, how to defeat laziness)
+- 💞️ I’m looking to collaborate on anything.
+- 📫 How to reach me : https://discord.gg/W3adCX27ef
+-I am currently a newbie.
